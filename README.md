@@ -1,1 +1,0 @@
-# EntranceForCollege2.github.io
